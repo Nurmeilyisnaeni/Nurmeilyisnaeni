@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nurmeilyisnaeni
 - 👀 I’m interested in organizational development, social skill, marketing communication, building planner, education, social media marketing, main controlling, etc
-- 🌱 I’m currently learning social science 
-- 💞️ I’m looking to collaborate on internship progran
+- 🌱 I’m currently learning social science, community development, copywriting, etc.
+- 💞️ I’m looking to collaborate on internship program, management trainee, etc.
 - 📫 How to reach me : nurmeilyisnaeni1599@gmail.com (phone number : 0813-1688-7743) 
 
 <!---
